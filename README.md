@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Graphic Design and Web Design. I like both!
 - 💞️ I’m looking to collaborate on Web development and making apps and the like!
 - 📫 How to reach me ... JUST USE EMAIL!
-- 😄 Pronouns: ... He/him but sometimes her and them.
+- 😄 Pronouns: ... He/him but sometimes her and them. Whatever :)
 - ⚡ Fun fact: ... I have two minions who do my bidding!
 
 <!---
